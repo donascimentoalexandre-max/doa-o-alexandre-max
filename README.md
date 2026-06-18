@@ -8,4 +8,4 @@
 
 
 
-![](https://tenor.com/pt-BR/view/ousmane-dembele-mewing-epic-ousmane-dembele-france-mewing-gif-11660216422053043292)
+![](https://media.tenor.com/odFpDrCl3FwAAAAd/ousmane-dembele-mewing-epic.gif)
