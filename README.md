@@ -11,5 +11,5 @@
 -   adoro aprender coisas novas📖
 
 
+
 ![](https://tenor.com/pt-BR/view/lolz-gif-8319780237029192474)
- 
